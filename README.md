@@ -1,0 +1,1 @@
+# How-to-Screenshot-on-Lenovo-Laptop-Using-Built-In-Tools
